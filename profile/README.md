@@ -2,9 +2,9 @@
 
 𝚑𝚊𝚌𝚎 𝟶𝟻 𝚖𝚒𝚗𝚞𝚝𝚘𝚜 — 𝚅𝚎𝚛 El secreto del orfebre (𝟸𝟶𝟸𝟻) 𝚙𝚎𝚕í𝚌𝚞𝚕𝚊 𝚌𝚘𝚖𝚙𝚕𝚎𝚝𝚊 𝙶𝚁𝙰𝚃𝙸𝚂 𝚎𝚗 𝙴𝚜𝚙𝚊ñ𝚘𝚕 𝙻𝚊𝚝𝚒𝚗𝚘 𝚘 𝚌𝚘𝚗 𝚜𝚞𝚋𝚝í𝚝𝚞𝚕𝚘𝚜 𝚎𝚗 𝚝𝚞 𝚒𝚍𝚒𝚘𝚖𝚊, 𝚎𝚗 𝙷𝙳 𝚢 𝚑𝚊𝚜𝚝𝚊 𝚎𝚗 𝚌𝚊𝚕𝚒𝚍𝚊𝚍 𝟸𝟶𝟸𝟻 𝙷𝙳. El secreto del orfebre 𝚘𝚗𝚕𝚒𝚗𝚎 𝚢 𝙳𝚎𝚜𝚌𝚊𝚛𝚐𝚊𝚛 𝙶𝚛𝚊𝚝𝚒𝚜 𝚎𝚗 𝙷𝙳 𝟽𝟸𝟶𝚙, 𝙵𝚞𝚕𝚕 𝙷𝙳 𝟷𝟶𝟾𝟶𝚙, 𝚄𝚕𝚝𝚛𝚊 𝙷𝙳 𝟺𝙺
 
-### 𝚅𝙴𝚁 𝙰𝙷𝙾𝚁𝙰 ☛☛ El secreto del orfebre 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝚌𝚘𝚖𝚙𝚕𝚎𝚝𝚊](https://t.co/pc2wDYFFPu)
+### 𝚅𝙴𝚁 𝙰𝙷𝙾𝚁𝙰 ☛☛ [El secreto del orfebre 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝚌𝚘𝚖𝚙𝚕𝚎𝚝𝚊](https://t.co/pc2wDYFFPu)
 
-### 𝙳𝙴𝚂𝙲𝙰𝚁𝙶𝙰𝚁 ☛☛ El secreto del orfebre 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝚌𝚘𝚖𝚙𝚕𝚎𝚝𝚊](https://t.co/pc2wDYFFPu)
+### 𝙳𝙴𝚂𝙲𝙰𝚁𝙶𝙰𝚁 ☛☛ [El secreto del orfebre 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝚌𝚘𝚖𝚙𝚕𝚎𝚝𝚊](https://t.co/pc2wDYFFPu)
 
 El secreto del orfebre 𝙾𝚗𝚕𝚒𝚗𝚎 𝚎𝚗 𝙴𝚜𝚙𝚊ñ𝚘𝚕 - 𝙳𝚒𝚜𝚏𝚛𝚞𝚝𝚊 𝙶𝚛𝚊𝚝𝚒𝚜 𝚍𝚎 𝚕𝚊 𝙿𝚎𝚕𝚒𝚌𝚞𝚕𝚊 𝙲𝚘𝚖𝚙𝚕𝚎𝚝𝚊 𝚎𝚗 𝙷𝙳 𝚌𝚘𝚗 𝙰𝚞𝚍𝚒𝚘 𝙴𝚜𝚙𝚊ñ𝚘𝚕 𝚢 𝚂𝚞𝚋𝚝𝚒𝚝𝚞𝚕𝚊𝚍𝚘
 
